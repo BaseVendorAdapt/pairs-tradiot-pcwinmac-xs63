@@ -1,4 +1,4 @@
-# 
+# Profesional pairs trading bot preajustes para Mac OS | Élite pairs trading bot preajustes para PC Windows. Con firma de transacciones y comercio de pares — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
